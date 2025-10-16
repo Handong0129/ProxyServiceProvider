@@ -10,13 +10,15 @@
 ## 🔗 访问地址
 **主页地址：**  
 `love.521pokemon.com`
+**备用地址：** 
+`love1.go52pokemon.com`
 
 ## 📝 注册方式
 **邀请码：**  
 `US3V55uB`
 
 **注册链接：**  
-👉 [点击此处一键注册](https://love.521pokemon.com/register?code=US3V55uB)
+👉 [点击此处一键注册](https://love1.go52pokemon.com/#/register?code=US3V55uB)
 
 ## 💡 套餐说明
 - **免费版**: 满足日常上网需求，稳定可靠
