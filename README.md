@@ -20,6 +20,7 @@
 
 **注册链接：**  
 👉 [点击此处一键注册](https://love1.go52pokemon.com/#/register?code=US3V55uB)
+注册完觉得好用回来给个星呗🤭
 
 ## 访问地址失效请留言
 
